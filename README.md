@@ -1,0 +1,2 @@
+# gyoztunk
+eloadasokgyozz
